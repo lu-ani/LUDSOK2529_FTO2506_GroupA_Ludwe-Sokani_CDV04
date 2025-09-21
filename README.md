@@ -1,2 +1,2 @@
-### Link to Cover Letter
-[Your Google Docs Cover Letter](<https://docs.google.com/document/d/1GUeqz8o-prwfcI_Olnu4pQN-YXx1gLq-RSIMFmYEjAw/edit?usp=sharing>)
+### Link to My Cover Letter
+[My Google Docs Cover Letter](<https://docs.google.com/document/d/1GUeqz8o-prwfcI_Olnu4pQN-YXx1gLq-RSIMFmYEjAw/edit?usp=sharing>)
